@@ -1,2 +1,2 @@
 # Before A Happening
-Sound art created in 2017.
+This work is a sound art created in 2017.
